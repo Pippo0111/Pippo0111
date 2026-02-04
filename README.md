@@ -1,5 +1,5 @@
 # 💫 Ola sou o Enzo:
-- 🧑‍🎓 20 anos  <br>- 🇧🇷 Do Brasil  <br>- 📚 3º semestre de ADS  <br>💻 Apaixonado por tecnologia e programação<br>-🌱 Sempre aprendendo e aprimorando minhas 
+- 🧑‍🎓 20 anos  <br>- 🇧🇷 Do Brasil  <br>- 📚 5º semestre de ADS  <br>💻 Apaixonado por tecnologia e programação<br>-🌱 Sempre aprendendo e aprimorando minhas 
 
 
 ## 🌐 Socials:
